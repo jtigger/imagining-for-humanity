@@ -1,9 +1,15 @@
 # Why
 
-> _(replace this content with :point_down:)_
-> 
-> Your thoughts on:
-> - what we are striving for,
-> - what we hope/expect will result from acheiving it,
-> - what keeps that from happening on its own, right now,
-> - (anything else that defines or energizes your sense of purpose)
+A number of us have started dialoguing about what it would be like to do profit-making work ...
+... but where the fundamental goal is the gratification and deep satisfaction of all involved.
+
+We don't seem to organize ourselves in that way, naturally — the cultures in our modern society (particularly in "The West") has tended to yield groups who center around amassing wealth and power for a select few.
+
+This sort of organization:
+- **creates a disproprotionate amount of suffering** \
+  We exchange tiny increments of fleeting "happiness" for a narrowing minority \
+  for huge increases in persistent anxiety for the ballooning majority.
+- **pulls us out of equilibrium with our environment** \
+  We're destroying this planet by leeching its limited natural resources and billowing waste into the living spaces of other species
+- 
+  
